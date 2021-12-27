@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DunnGaming
 - 👀 I’m interested in gaming, programming, and IT in general
-- 🌱 I’m currently learning how to be a good IT Manager
+- 🌱 I’m currently learning how to be a good IT Director
 - 💞️ I’m looking to collaborate on projects to help me bring cost effective technology into my workplace
 - 📫 How to reach me Email: Jdunn0423@live.com
 
